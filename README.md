@@ -1,4 +1,4 @@
-# Andrew Barfield's Github
+# Andrew Barfield's GitHub
 
 LinkedIn: https://www.linkedin.com/in/amb384
 
